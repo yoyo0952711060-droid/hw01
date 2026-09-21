@@ -36,4 +36,4 @@
 
 [高科大](https://www.nkust.edu.tw/)
 
-![NKUST](logo.png"高科大")
+![NKUST](logo.jpg"高科大")
