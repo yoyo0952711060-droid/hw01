@@ -6,5 +6,7 @@
 * 細心
 * 跳舞
 *不是因為厲害才開始，是因為開始了才厲害*
-[TXT](https://www.youtube.com/channel/UCtiObj3CsEAdNU6ZPWDsddQ)
+
+[TXT YT](https://www.youtube.com/channel/UCtiObj3CsEAdNU6ZPWDsddQ)
   
+``現在就算辛苦，但從以後的遠處來看，會成為照亮我們走過的道路的夜景，我相信能成為無數火光``
